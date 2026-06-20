@@ -11,7 +11,7 @@
  <p align="center"> $${\color{#9db4b3} Read \space pages \space 4 \space info . }$$
  <p align="center"> $${\color{#964ebe} @SlaughterHouseLoser \space < \space 3 \space My \space Sweetheart \space :) }$$
   
-   [Rentry](https://rentry.co/soundtrackss)       [Ata]( https://d6esired6.atabook.org/ )  [en.pronouns]( https://en.pronouns.page/@desired_dreams )   [pronouns.cc](https://pronouns.cc/@DesiredDreams)    [Mw/bf<3](https://rentry.co/cleradinnn)     [Mw/lil sis](https://rentry.co/craftysun)
+   [Rentry](https://rentry.co/soundtrackss)       [Ata]( https://d6esired6.atabook.org/ )    [pronouns.cc](https://pronouns.cc/@DesiredDreams)    [Mw/bf<3](https://rentry.co/cleradinnn)     [Mw/lil sis](https://rentry.co/craftysun)
 
  My keyboard is BUNS my keys are out of place n unuseable so expe(t me to type /i|<e THIS. ok?
 I use ( as c . / as L . |< as k . ! as j . i copy and paste my d and dont use my f at all 
