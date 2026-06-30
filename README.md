@@ -1,7 +1,8 @@
 </p>                                                                     
 <img src="https://readme-typing-svg.demolab.com/?lines=666+on+my+crucifix!;My+body+is+yearning;body+is+yearning&font=Fira%20Code&center=true&width=380&height=50&duration=4000&pause=1000" alt="Example Usage - README Typing SVG">
  
-<img width="830" height="823" alt="Untitled67_20260620160151" src="https://github.com/user-attachments/assets/6dbc3761-93e6-47db-a6de-407f55539774" />
+</p>
+<p align="center"> I've been planning 2 remak my gh + links 4 a while expect this to be done today or tmw depending on my lazyness
 
 
 
