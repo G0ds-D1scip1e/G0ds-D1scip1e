@@ -3,6 +3,7 @@
  
 </p>
 <p align="center"> I've been planning 2 remak my gh + links 4 a while expect this to be done today or tmw depending on my lazyness
+<p align="center"> + finally finishing dni & adding new bs 2 my byi
 
 
 
