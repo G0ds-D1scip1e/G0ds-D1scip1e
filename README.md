@@ -2,7 +2,7 @@
 <img src="https://readme-typing-svg.demolab.com/?lines=666+on+my+crucifix!;My+body+is+yearning;body+is+yearning&font=Fira%20Code&center=true&width=380&height=50&duration=4000&pause=1000" alt="Example Usage - README Typing SVG">
  
 </p>
-<p align="center"> I've been planning 2 remak my gh + links 4 a while expect this to be done today or tmw depending on my lazyness
+<p align="center"> Doing this shit rn guys i swear pls trust me : (
 <p align="center"> + finally finishing dni & adding new bs 2 my byi
 
 
