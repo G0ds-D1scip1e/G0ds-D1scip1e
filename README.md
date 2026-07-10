@@ -1,8 +1,10 @@
 
 </p>                                                                     
 <img src="https://readme-typing-svg.demolab.com/?lines=Id+cut+my+heart+,;If+it+meant+that+youll+hold+it+close+.;&font=GentleHearts%20Code&center=true&width=500&height=50&duration=4000&pause=1000&color=f2f2c3" alt="Example Usage - Me">
+
 IM SO MAd BRUH someone teach me how to do these moving..graphic..?..widgets?WHATEVER YOU GUYS GET IT PLS LIKEEE HANGS
-ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![views](https://komarev.com/ghpvc/?username=ze&label=Homosexuals&color=4766d0&style=plastic&abbreviated=true)
+ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![views](https://komarev.com/ghpvc/?username=ze&label=Homosexuals&color=4766d0&style=plastic&abbreviated=true)
 
 
 <img width="700" height="700" alt="Untitled72_20260705163010" src="https://github.com/user-attachments/assets/6afcb61f-24fb-4827-8de8-91a5db70609f" />
