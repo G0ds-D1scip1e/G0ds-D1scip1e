@@ -2,7 +2,6 @@
 </p>                                                                     
 <img src="https://readme-typing-svg.demolab.com/?lines=Id+cut+my+heart+,;If+it+meant+that+youll+hold+it+close+.;&font=GentleHearts%20Code&center=true&width=500&height=50&duration=4000&pause=1000&color=f2f2c3" alt="Example Usage - Me">
 
-IM SO MAd BRUH someone teach me how to do these moving..graphic..?..widgets?WHATEVER YOU GUYS GET IT PLS LIKEEE HANGS
 ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![views](https://komarev.com/ghpvc/?username=ze&label=Homosexuals&color=4766d0&style=plastic&abbreviated=true)
 
