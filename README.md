@@ -9,8 +9,6 @@
 </p>
 <p aling="center">$${\color{#917486} Art \space crds \space : \space @fishieguy \space on \space X \space .  }$$ 
 
-<p aling="center"><a href="https://glorified.atabook.org/">Ata <p<p aling="center"><a href="https://rentry.co/tobiaswilderr"> Rentry</a> 
-</p>
 
 
   
