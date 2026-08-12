@@ -7,9 +7,14 @@
 
                           <img width="420" height="320" alt="Untitled93_20260812013833" src="https://github.com/user-attachments/assets/91c52a01-cc8a-49eb-9f84-11a9b45a6f95" />
 </p>
-<p aling="center">$${\color{#917486} Art \space crds \space : \space @fishieguy \space on \space X \space .  }$$
+<p aling="center">$${\color{#917486} Art \space crds \space : \space @fishieguy \space on \space X \space .  }$$ 
 
-       <img src="https://readme-typing-svg.demolab.com/?lines=You+could+cause+you+can+so+you+do,;we're+feeling+so+good+just+the+way+we+do.;&font=GentleHearts%20Code&center=true&width=500&height=50&duration=4000&pause=1000&color=706486" alt="Example Usage - Me">
+<p aling="center"><a href="https://glorified.atabook.org/">Ata <p<p aling="center"><a href="https://rentry.co/tobiaswilderr"> Rentry</a> 
+</p>
+
+
+  
+
  
              ㅤ
 My keyboard is BUNS my keys are out of place n unuseable so expe(t me to type /i|<e THIS. ok?
