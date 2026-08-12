@@ -9,7 +9,8 @@
 </p>
 <p aling="center">$${\color{#917486} Art \space crds \space : \space @fishieguy \space on \space X \space .  }$$ 
 
-
+</p>  
+  <img src="https://readme-typing-svg.demolab.com/?lines=You+could+cause+you+can+so+you+do,;we're+feeling+so+good+just+the+way+we+do.;&font=GentleHearts%20Code&center=true&width=500&height=50&duration=4000&pause=1000&color=706486" alt="Example Usage - Me">
 
   
 
